@@ -8,6 +8,8 @@ Meu nome é **matheus da silva de freitas**
 ## Você pode entrar em contato comigo 📫
 00001127647234sp@al.educacao.sp.gov.br
 
+![](https://media1.tenor.com/m/L1SOy0Q8O7gAAAAC/eyebrow-raise-shrek.gif)
+
 <!--
 **Theuzin0231/Theuzin0231** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
